@@ -1,0 +1,1 @@
+# funnysta.github.io
